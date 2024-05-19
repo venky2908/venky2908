@@ -13,6 +13,7 @@
 💬 Ask me about my favorite coding languages, my experience with different frameworks, or my thoughts on the latest tech trends!
 
 📫 How to reach me: Feel free to shoot me an email at vm253296@gmail.com or connect with me on LinkedIn At https://www.linkedin.com/in/mettela-venkata-rao-76095928b/
+
 😄 Pronouns: HE/HIM
 
 
